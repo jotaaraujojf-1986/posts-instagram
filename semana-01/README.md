@@ -76,3 +76,53 @@ Jota Araújo | Executivo Loovi
 
 A Loovi (CNPJ 34.504.257/0001-00) é uma representante de seguros da LTI Seguros S.A (CNPJ 47.006.254/0001-80). A LTI Seguros é participante da 2ª edição do Sandbox Regulatório da SUSEP, tendo seu plano de seguros registrado sob o nº 15414.649321/2021-55. A Loovi e a LTI Seguros S.A. fazem parte do mesmo grupo econômico, sendo ambas controladas (de forma direta ou indireta) pela mesma sociedade holding.
 ```
+
+---
+
+# Só no Facebook (dias do Metricool)
+
+Nestes dias o Instagram já publica sozinho às 19h. Publique o mesmo post na sua página do Facebook.
+
+## Quarta, 25/11
+
+![p2_01](p2_01.jpg)
+![p2_02](p2_02.jpg)
+![p2_03](p2_03.jpg)
+
+Legenda:
+
+```text
+Ninguém sai de casa pensando que vai ter o carro roubado. Mas acontece, e o dia seguinte é bem diferente pra quem tem seguro.
+
+Arrasta e compara. 👉
+
+Fazer uma cotação não custa nada e não te obriga a nada. Atendo Juiz de Fora e todo o Brasil. Link na bio ou me chama no direct.
+
+Jota Araújo | Executivo Loovi
+
+#seguroauto #segurodecarro #juizdefora #jf #motorista #seguroautobrasil
+
+A Loovi (CNPJ 34.504.257/0001-00) é uma representante de seguros da LTI Seguros S.A (CNPJ 47.006.254/0001-80). A LTI Seguros é participante da 2ª edição do Sandbox Regulatório da SUSEP, tendo seu plano de seguros registrado sob o nº 15414.649321/2021-55. A Loovi e a LTI Seguros S.A. fazem parte do mesmo grupo econômico, sendo ambas controladas (de forma direta ou indireta) pela mesma sociedade holding.
+```
+
+## Sexta, 27/11
+
+![p3_01](p3_01.jpg)
+
+Legenda:
+
+```text
+Prazer, eu sou o Jota! 👋
+
+Sou de Juiz de Fora e atendo motoristas de todo o Brasil como Executivo Loovi, ajudando a proteger o carro sem complicação.
+
+Aqui no perfil vou compartilhar dicas sobre seguro auto: o que cada cobertura faz e como não cair em armadilhas na hora de contratar.
+
+Quer uma cotação? Link na bio ou me chama no direct. 📩
+
+Jota Araújo | Executivo Loovi
+
+#seguroauto #segurodecarro #juizdefora #jf #seguroautobrasil
+
+A Loovi (CNPJ 34.504.257/0001-00) é uma representante de seguros da LTI Seguros S.A (CNPJ 47.006.254/0001-80). A LTI Seguros é participante da 2ª edição do Sandbox Regulatório da SUSEP, tendo seu plano de seguros registrado sob o nº 15414.649321/2021-55. A Loovi e a LTI Seguros S.A. fazem parte do mesmo grupo econômico, sendo ambas controladas (de forma direta ou indireta) pela mesma sociedade holding.
+```
